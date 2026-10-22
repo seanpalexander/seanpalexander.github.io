@@ -1,2 +1,0 @@
-# seanpalexander.github.io
-Scratchpad
